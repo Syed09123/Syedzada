@@ -1,0 +1,2 @@
+# Syedzada
+Syedzada.com
